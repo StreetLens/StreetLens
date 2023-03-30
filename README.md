@@ -1,6 +1,4 @@
-# Welcome to StreetLens
-
-A modelling agency from the street, for the street.
+# Welcome to a modelling agency from the street, for the street.
 
 Main website coming soon!
 
