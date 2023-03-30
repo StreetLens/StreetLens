@@ -13,9 +13,9 @@ We are looking for very slim females, with a punchy UK street look, attitude and
 - Bust size irrelevant.
 - The shoot plans a lot of shots of buttocks, back and thighs due to the marketing campaign of the client featuring this area.
 - Tattoos and body art accepted/encouraged.
-- All expenses paid shoot plus £350-500 depnendign on experience and look.
+- All expenses paid shoot plus £350-500 depending on experience and look.
 
-Email portfolio including specific shots related to client shoot to streetlens@proton.me FAO Lucas
+Email portfolio including specific shots related to client shoot requirements to streetlens@proton.me FAO Lucas
 
 
 
